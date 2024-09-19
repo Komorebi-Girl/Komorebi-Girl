@@ -16,7 +16,7 @@ I'm excited at the prospect of you getting to know my work better. Please take y
 There's more to me than just work though! Here are some fun facts about me: 
 
 - 👘 I’m currently learning Japanese as a hobby (I've visited there twice!)
-- 📺 I am a huge k-drama lover (particularly obsessed with thrillers/mysteries). 
+- 📺 I love a good mystery/thriller (books, TV, movies, I love them all)!
 - 🍪 My sweet tooth is unrivaled - I would have dessert after every meal if I could.
 - 🎯 My goal for this year is to land my dream data job working on a team with like-minded "Number Nerds"!
 
